@@ -1,4 +1,4 @@
-# 💫 About Me:
+# Hi there, I am Aman Singh Rathore 👋:
 🔭 A Passionate Developer<br>🚀 Turning imagination into reality
 
 
